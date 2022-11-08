@@ -9,7 +9,8 @@
 
 - ⚡ Fun fact **I'm learning Italian!**
 
-<h3 align="left">Connect with me:</h3>
+- Check out my ⭐️ repositories to see what else I'm interested in!
+
 <p align="left">
 </p>
 
