@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **bruggerem@gmail.com**
 
-- ⚡ Fun fact **I'm learning Italian!**
-
 - Check out my ⭐️ repositories to see what else I'm interested in!
 
 <p align="left">
